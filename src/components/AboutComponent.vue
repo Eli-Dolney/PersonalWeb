@@ -14,7 +14,7 @@
               there's no shortage of cool things to explore in life.
             </p>
             <p>
-              Cool things are all around us, from breathtaking natural wonders to
+              Cool! things are all around us, from breathtaking natural wonders to
               cutting-edge technology. Exploring new and cool things can be a fun
               and rewarding experience that broadens our horizons. Some of the
               coolest things in the world can be found in unexpected places, so
